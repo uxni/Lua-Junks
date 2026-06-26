@@ -1,1 +1,1 @@
-trash code i scripted. encrypted since i dont want to hurt ur eye🙂
+old trash code i scripted. encrypted since i dont want to hurt ur eye🙂
